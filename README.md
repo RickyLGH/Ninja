@@ -1,4 +1,4 @@
 # Ninja
 big dick energy
 
-Rick was here.
+Get some sleep.
